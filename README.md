@@ -13,3 +13,5 @@ Learning new things fuels my passion for design. Design fuels my passion to lear
 * [contact@charleskeil.ca](mailto:contact@charleskeil.ca)
 * [Instagram](https://www.instagram.com/charleskeil/?hl=en)  
 * [Linkedin](https://ca.linkedin.com/in/charles-keil-355bb6b4)
+
+© Charles Keil 2016
